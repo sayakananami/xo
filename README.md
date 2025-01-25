@@ -5,7 +5,7 @@
      15 y/o ENFP!!
 
 currently a Pony town Player!! ><
-
+ plz Danganronpa fans int >o<!!
 I am Ryoma's hoshi wife real ^_-
 
 ![28 sin título_20250124004639](https://github.com/user-attachments/assets/6179d710-0835-4c99-840f-b797eec914ba)
